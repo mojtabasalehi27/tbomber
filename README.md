@@ -46,11 +46,9 @@ Now the Script Will Execute..
  The Black Hacker ( Thanks For Finding Couple Of APIs ) <br>
 
 # CONTACT
-For Any Queries Join Me On WhatsApp!!!
-          Group Link: http://bit.do/thespeedx
-  <a href="http://bit.do/thespeedx">Join My Group</a>
+For Any Queries Join Me On WhatsApp!!! +905376847951
+         
 
-           Mail: ggspeedx29@gmail.com
+           Mail: kingmh021@gmail.com
 
-           YouTube Channel: https://www.youtube.com/c/GyanaTech
-  <a href="https://www.youtube.com/c/GyanaTech">Check My Channel</a>
+          
